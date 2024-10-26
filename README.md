@@ -1,1 +1,1 @@
-In a future where memories could be transferred like currency, Mara, a technician at a memory exchange hub, faced a poignant dilemma when a frail old man named Arthur requested to give his last memory—of a joyful day at the beach with his granddaughter—away.
+
